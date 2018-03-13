@@ -20,14 +20,14 @@ Experienced hires would be considered for more senior positions<br>
 (Shopee > Product Management)<br>
 As part of the eCommerce Business Development team, you will work directly with the Head of Business Development in merchant/brands acquisition and retention efforts for your country and work as a team to meet the business KPIs. <br>
 
-<b>Job Description</b>: <br>
+<b>Job Description</b>: 
 + Design, conduct and analyze
   + Qualitative studies such as field observations, interviews, usability tests and customer feedback for existing and future products
   + Quantitative studies such as surveys to evaluate impact of product changes
 + Study competitor platforms and market trends to identify opportunities
 + Communicate research findings to ensure a holistic view of our users and collaborate closely with stakeholders (e.g. Product, Design, Operations, Business Development) to drive improvements in customer experience) <br>
 
-<b>Job Requirements</b>: <br>
+<b>Job Requirements</b>: 
 + Bachelor’s degree, preferably in Human-Computer Interaction, Statistics, Psychology, Computer Science or a related field.
 + At least 2 – 3 years of experience conducting user research (e.g. interviews, usability tests, field observations, surveys)
 + Strong communication skills in English and Vietnamese (verbal and written)
